@@ -1,6 +1,6 @@
 # Undress AI List
 
-* [Penly Undress AI](https://penly.ai/undress/)
+* [Undress AI](https://penly.ai/undress/)
 * [Undress AI](https://undress.xxx/)
 * [NudifyAI](https://nudify-ai.online/)
 * [FantasyGF.AI](https://fantasygf.ai/generate-image)
